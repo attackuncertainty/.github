@@ -1,1 +1,1 @@
-uncertainty is the seed of evil
+uncertainty is the seed of evil and protector of truth.
